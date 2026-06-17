@@ -1,4 +1,4 @@
-# Tere! 👋 Mina olen Ott Paabbo
+# Tere! 👋 Mina olen Ott Pabbo
  
 ## 🎯 Andmeanalüütiku Karjääri Algus
  
